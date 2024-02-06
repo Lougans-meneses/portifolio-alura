@@ -12,6 +12,6 @@
 
 ## Feito por:
 
-### Joana Santos
+### Lougans 
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: (https://www.linkedin.com/in/lougans-moura/)https://www.linkedin.com/in/lougans-moura/
